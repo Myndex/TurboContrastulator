@@ -5,5 +5,5 @@
 4) Under no circumstances shall random PIDs be terminated, under penalty of Q.
 
 ## Copyright
-_All files within the repository are copyright © 2023 by A.Somers. All rights reserved._
+_All files within this repository are copyright © 2023 by A.Somers. All rights reserved._
 
