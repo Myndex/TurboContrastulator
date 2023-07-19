@@ -14,3 +14,15 @@ And now, utilizing the latest advances in artificially derived machine intellige
 The contrast algorithm knows what it is at all times. It knows this because it knows what it isn’t. By subtracting what it is from what it isn’t, or what it isn’t from what it is (whichever is greater), it attains a difference or deviance. The contrast algorithm uses these deviant results to generate corrective commands to drive the contrast from a value where it is, to a value where it isn’t, arriving at a value where it wasn’t, but is now. Consequently, the value where it is, is the value where it wasn’t. So it follows therefore, that the value where it was, is the value where it now isn’t. 
 
 As you can plainly see the Turbo-Contrastulator has now achieved a high level of deployment, and it’s being successfully used in the operation of novertrunnions. Moreover, whenever a forescent skor prediction is required, it may also be employed in conjunction with an articula-procation dingle armature, to reduce sinusoidal repleneration.
+
+_Arny S. Arcasm_    
+_Director Emeritus_    
+_**TMIDERPYABPHOBIA**_    
+_The Ministry for Investigating    
+Documentation and Evidence of    
+Rampant Prolixity Yammering on    
+About Beating Perished Horses    
+Oversight Bureau and    
+Inspection Administration    
+Langley, Virginia, 10037_
+
