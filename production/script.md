@@ -4,7 +4,7 @@
 SHOOTING SCRPT
 
 Hello, I'm Doctor Arnie Sarkasim, you may remember me from
-such educational films as "Antifreeze: Tastes Great but Don't Drink It"
+such educational films as "Ethlyne Glycol: Tastes Great but Don't Drink It"
 and "Our Friend Mathmatics: a friend we can count on".
 Today I am here at Mynd-Wrecks Re-Search, to present to you 
 an exciting innovation.
@@ -31,9 +31,9 @@ panendermic semi-boloid soft-clarping of the goto statement, switching
 every seventh case via non-reversible tremie pipe to the differential 
 dev spring-roller on the W axis of the grameters.
 
-And now, utilizing the latest advances in artificially derived machine 
-intelligence, we can now say with complete confidence the order of 
-operations to maximize the functionality, such that we can present, 
+And now, utilizing the latest advances in artificially flavored machine 
+intelsentience, we can now say with complete confidence the order of 
+opteritations to maximize the functionality, such that we can present, 
 in the simplest possible manner, what we would further describe as, 
 an expressed plurality of the following de-complexified planar 
 linguistic tutorial.
