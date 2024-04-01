@@ -1,5 +1,13 @@
 _Press Release: April 1, 2024_
 # TurboContrastulator
+
+[![TurboContrastulatorPoster](https://github.com/Myndex/TurboContrastulator/assets/42009457/d27fdf40-e4ac-4a28-b30b-dd9db46a220b)](https://youtu.be/-u-5JAE6fbI?si=ho00aW4j4hP_cyBJ)
+
+[**YouTube Video Link**](https://youtu.be/-u-5JAE6fbI?si=ho00aW4j4hP_cyBJ)
+
+
+## Transcript
+
 For a number of years now, work has been proceeding in order to bring
 perfection to the cryptically conceived concept of contrast that would 
 not only supply inverse reactive spatial quanta for use in unilateral 
