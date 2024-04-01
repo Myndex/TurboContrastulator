@@ -26,13 +26,13 @@ phantom. The latter consisted simply of a matrix of nine hydrocoptic
 marzlevanes, calculated into the ambifacient lunar wane-space such that 
 cone-fumbling was effectively prevented.
 
-The main calculation is of the normal lotus-o-deltoid Foo-Yay-Bar integrated in a  
+The main calculation is of the normal lotus-o-deltoid Foo-Yay-Bar in a  
 panendermic semi-boloid soft-clarping of the goto statement, switching 
 every seventh case via non-reversible tremie pipe to the differential 
-spring-roller on the W axis of the grameters.
+spring-roller with a plumb source on the W axis of the grameters.
 
 Today, utilizing the latest advances in artificially flavored machine 
-intesentience, we can now say with complete confidence the order of 
+insentience, we can now say with complete confidence the odor of 
 opteritations to maximize the functionality, such that we can present, 
 in the simplest possible manner, what we would further describe as, 
 an expressed plurality of the following de-complexified planar 
