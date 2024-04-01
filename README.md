@@ -19,7 +19,7 @@ phantom. The latter consisted simply of a matrix of nine hydrocoptic
 marzlevanes, calculated into the ambifacient lunar wane-space such that 
 cone-fumbling was effectively prevented.
 
-The main calculation is of the normal lotus-o-deltoid Foo-Yay-Bar integrated in a  
+The main calculation is of the normal lotus-o-deltoid Foo-Yay-Bar integrated in a 
 panendermic semi-boloid soft-clarping of the goto statement, switching 
 every seventh case via non-reversible tremie pipe to the differential 
 spring-roller with a plumb source on the W axis of the grameters.
@@ -31,7 +31,7 @@ in the simplest possible manner, what we would further describe as,
 an expressed plurality of the following de-complexified planar 
 linguistic tutorial.
 
-The turbo contrastulator algorithm knows what the contrast is at all times.
+The turbo contrastulator algorithm knows what the contrast is at all times. 
 It knows this because it knows what it isn’t. By subtracting what it is from
 what it isn’t, or what it isn’t from what it is (whichever is greater), it
 attains a difference or deviance. The turbo contrastulator algorithm uses these
@@ -47,12 +47,13 @@ it may also be employed in conjunction with an articula-procation dingle
 armature, to reduce sinusoidal repleneration.
 
 _Dr. Arney S. Arcasm_    
+
 _Director Emeritus_    
 _**TMIDERPYABPHOBIA**_    
 _The Ministry for Investigating    
-Documented Evidence of Rampant
-Prolixity Yammering About Beating
-Perished Horses Oversight Bureau
+Documented Evidence of Rampant    
+Prolixity Yammering About Beating    
+Perished Horses Oversight Bureau    
 Inspection Administration_    
 <sub> _Langley, Virginia, 10037_</sub>
 
