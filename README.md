@@ -65,3 +65,5 @@ Perished Horses Oversight Bureau
 Inspection Administration_    
 <sub> _Langley, Virginia, 10037_</sub>
 
+----
+Contents of this repository are copyright © 2023/2024. All Rights Reserved.      
